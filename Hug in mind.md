@@ -1,32 +1,23 @@
 เปิดประตูต้อนรับความเหงา
-bpeud bpradtu dton rap kwam ngao
 Open the door for the loneliness
 
 ตั้งแต่เราไม่ได้เจอกัน
-dtang dtae rao mai dai je gan
 Since we haven't seen each other 
 
 ความคิดถึงมันทรมาน
-kwam kidteung man toreuman
 Missing someone is actually a torture
 
 แต่ในไม่ช้า มันต้องผ่านไป
-dtae nai mai cha, man dtong pan bpai
 But it will be over soon
 
 *
 ภาพยังชัดเจน แม้ห่างไกล
-pap yang chad jen mae hang klai
 The memory is still very clear even we are far away
 
 แค่หลับตาก็เจอฉันได้
-kae lap dta ko je chan dai
 Just close your eyes and you'll see me
 
-
-**
 แค่เธอคิดถึงฉัน กอดกันข้างในใจ
-kae ter kidteung chan, kod gan kang nai jai
 Just thinking of me, we can hug each other by heart
 
 แค่นี้ก็คงพอ กับวันที่เรานั้นต้องไกล
@@ -42,79 +33,61 @@ Make my heart next to yours
 We'll meet aech other soon
 
 
-[Jaylerr]
+# [Jaylerr]
 คิดถึงรอยยิ้มของเธอนะ Baby
-kidteung roy yim kong ter na, Baby
 Missing your smile, Baby
 
 เหมือนเธอเป็นพระอาทิตย์ส่วนตัวฉันเป็นดอก Daisy
-meuan ter bpen proa atit suan dtua chan bpen dok Daisy
 Like you are sunshine and I'm a Daisy
 
 ถึงเราจะห่างกันไกลแต่ฉันรับรู้ถึงความรู้สึกที่เธอมี
-teung rao ja hang gan klai dtae chan rap ru teung kwam ru seuk ti ter mi
 Even we are far away, I know how you feel
 
 ความคิดถึงที่มีให้กันมันส่องมาถึงที่ตรงนี้
-kwam kidteung ti mi hai gan man song ma teung ti dtrong ni
 The way you missing me is sending your feeling here to me
 
 Hello..
 
 เป็นไงบ้างละคนดี
-bpen ngai bang la kon di
 How are you pretty?
 
 ฉันนั้นแทบจะ Crazy
-chan nan taep ja Crazy
 I am almost Crazy
 
 ห่างกันหลายวันแต่ตัวของฉันนั้นมันไม่ชินสักที
-hang gan lai wan dtae dtua kong chan, nan man mai chin sak ti
 We haven't seen each other for many days but I'm still not used to it
 
 ถ้าถามตอนนี้อยากได้อะไร 
-ta tam dton ni yak dai arai 
 If you ask me what I want
 
 ขอฉันกอดเธอผ่าน FaceTime
-koh chan kot ter pan FaceTime
 I want to hug you through Facetime
 
 ไม่รู้จะเว่อร์ไปไหม
-mai ru ja we bpai nai
 Is it too much?
 
 *
 ภาพยังชัดเจน แม้ห่างไกล
-pap yang chad jen mae hang klai
 The memory is still very clear even we are far away
 
 แค่หลับตาก็เจอฉันได้
-kae lap dta ko je chan dai
 Just close your eyes and you'll see me
 
 
-** 2x
-แค่เธอคิดถึงฉัน กอดกันข้างในใจ
-kae ter kidteung chan, kod gan kang nai jai
-Just thinking of me, we can hug each other by heart
+**แค่เธอคิดถึงฉัน กอดกันข้างในใจ
+Just thinking of me, we can hug each other by heart**
 
-แค่นี้ก็คงพอ กับวันที่เรานั้นต้องไกล
-kae ni kaaw kong pho gap wan ti rao nan dtong klai
-This is enough with the day we are far away
+**แค่นี้ก็คงพอ กับวันที่เรานั้นต้องไกล
+This is enough with the day we are far away**
 
-ให้ความคิดถึงนั้น
-hai kwam kidteung nan
-Let the fact that we are missing each other
+**ให้ความคิดถึงนั้น
+Let the fact that we are missing each other**
 
-ผูกใจของฉันไว้ ผูกไว้ใกล้ใจเธอ
-puk jai kong chan wai puk wai klai jai ter
-Make my heart next to yours
+**ผูกใจของฉันไว้ ผูกไว้ใกล้ใจเธอ
+Make my heart next to yours**
 
-อีกไม่นานก็คงได้เจอ
-ik mai nan ko kong dai je
-We'll meet aech other soon
+**อีกไม่นานก็คงได้เจอ
+We'll meet aech other soon**
 
 
 อีกไม่นานก็คงได้เจอ
